@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Jeevitha A
-- 👀 I’m a pursuing IT student
+- 👀 I’m a college student
 - 🌱 I’m currently learning web designing and java
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me jeevitha1530@gmail.com
